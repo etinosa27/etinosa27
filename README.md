@@ -1,7 +1,6 @@
 Etinosa John Igbinevbo
 
 🔗 Links
-linkedin twitter
 (https://www.linkedin.com/in/etinosa-igbinevbo-721793122/)
 (https://twitter.com/Etinosa007)
 
